@@ -1,1 +1,2 @@
 # Onizuka
+TO SAY ON WHAT PURPOS AM I DOING IT
